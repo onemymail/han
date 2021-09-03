@@ -1,2 +1,2 @@
-i miss you today is 
-Sorry i miss you 
+
+Sorry i miss you ，It has been rainy recently。Come on
